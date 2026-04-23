@@ -106,12 +106,3 @@ By focusing on high-risk segments and enhancing customer experience, businesses 
 
 ---
 
-📌 Author
-
-Your Name
-
-MUGESH J
-
-🔗 Connect with Me
-
-(Add your Linked
